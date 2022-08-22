@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **roman_andryushenka@.mail.ru**
 
-- ⚡ Fun fact **I love to travel and dive headlong trying to get everything into this pastime.**
+- ⚡ Fun fact **I like to travel and dive with my head, trying to get the maximum of emotions and adrenaline from the pastime.**
 
 ## 🚀 Languages and Tools:
 
